@@ -4,6 +4,10 @@ Wendy’s has become a household name for anyone craving mouth-watering fast foo
 
 [Get Wendy's Sample ](https://smrturl.co/a/s4f603f7e94/1704?s1=)
 
+[Coca Cola Mini Fridge](https://smrturl.co/a/s4f603f7e94/10802?s1=)
+
+[Visa $1000](https://smrturl.co/a/s4f603f7e94/10806?s1=)
+
 **Why Everyone is Talking About “Get Wendy’s” Now**
 
 The rise of mobile ordering, online apps, and location-based rewards makes getting Wendy’s quicker and more rewarding than ever. With just a few taps, you can skip the line and earn points toward *free spicy nuggets, frosty treats,* or their classic Baconator. Plus, limited-time menu items often drop through app-exclusive announcements—giving you the upper hand.
